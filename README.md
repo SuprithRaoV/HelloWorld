@@ -2,6 +2,6 @@
 
 Baby Yoda is the cutest!
 
-Is it true!!!
+It is true!!!
 
 I am your cooperator
